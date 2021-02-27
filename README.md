@@ -1,1 +1,1 @@
-# logic-and-critical-thinking
+# Logic and Critical Thinking
